@@ -1,3 +1,3 @@
 ttttom.1 on mac
-wwwwwwwwwwwwwwwwwwwoooooooooooowwwwwwwwwwwwwwwwwwww
-FROM WINDOW
+after pull in Next trial on mac 
+wow from window either!
